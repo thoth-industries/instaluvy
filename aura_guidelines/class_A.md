@@ -7,7 +7,7 @@ Please disseminate in more "live" social contexts, intentionally (i.e., less tha
 
 
 # discourse
-
+(e.g., "talk-around" protocol)
 
 
 
@@ -18,6 +18,10 @@ Please disseminate in more "live" social contexts, intentionally (i.e., less tha
 
 
 #liturgical fad prevention
+
+
+
+#ethic / ethos of self-limitation
 
 
 
