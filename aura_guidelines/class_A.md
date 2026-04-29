@@ -46,3 +46,5 @@ get your tukus off the hedonic treadmill and out of the glam economy.  Climbing 
 eff Taylorism (i.e., Frederick Taylor) in the arts and humanties.
 Commodification can be great for stocking your kitchen, but in the humanities: 
 decommoditize, decommoditize.
+
+these stipulations may change without notice.  Even if "you bought the shirt" etc. etc..  Items may change from one class of aura protocol to another without notice, unless otherwise so stiuplated.
