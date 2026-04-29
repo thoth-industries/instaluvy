@@ -5,7 +5,7 @@ Please do not disseminate via public social media.
 Please disseminate in more "live" social contexts, intentionally (i.e., less than 14 people together).
 This item doesn't want to live in the social media economy, but rather in the economy that predates social media.  A social economy a lot more 
 social than what we call "social media" which in some sense is also the apex of asociality.
-- radio (all): you may play this on your station the first four days of every month royalty-free, for the first eight months after release date (might be in file name or file date, or somewhere near the file or file link).  Listeners may record but not distribute.
+- radio (all): you may play this on your station the first four days of every month royalty-free, for the first eight months after release date (might be in file name or file date, or somewhere near the file or file link), on the condition that you put out some word (for or against) the cause associated with the song and you tell listeners they might be able to get gear at independently owned record shops and used book stores.  Listeners may record but not distribute.
 - radio (locally owned, not in large chains; inquire if you are unsure lf your status): unlimited radio play rights royalty-free for the first eight months after release date.  Listeners may record but not distribute.
 
 
