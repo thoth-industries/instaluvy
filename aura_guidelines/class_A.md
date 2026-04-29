@@ -16,7 +16,7 @@ In journals more populist than peer-reviewed scholarly journals, and in groups o
 
 "Talk around" the song, the lyrics.  Select a feature which you find especially important, and talk about that.  Hit Google Scholar.  See what relevant scholars say.  Google for literature, art on the subject matter.  Talk about that.  This will likely have a lot of individual cultivation and social cultivation benefits.  Much more than blurting out your feelings about the song.
 
-#reception
+# reception
 We don't have any reception guidelines for this class of items.
 
 
@@ -32,9 +32,17 @@ Please don't share or talk about this during the months of May and June or Novem
 Keep in mind those in your neighborhood who have mobility difficulties.  If they are up for visiting, please visit them.  If it seems 
 right to share this with them, go ahead and share it.
 
-#ethic / ethos of self-limitation
+# ethic / ethos of self-limitation
 
 
 
-#infractions
+# infractions
 Please politely provide infractors a link to this document.
+
+____________________________________________________________
+
+feel free to link to this document wherever, whenever.  It itself isn't a very aura-sensitive thing.
+get your tukus off the hedonic treadmill and out of the glam economy.  Climbing the slippery pole is for idgits.
+eff Taylorism (i.e., Frederick Taylor) in the arts and humanties.
+Commodification can be great for stocking your kitchen, but in the humanities: 
+decommoditize, decommoditize.
