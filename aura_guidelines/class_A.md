@@ -37,7 +37,7 @@ right to share this with them, go ahead and share it.
 
 
 # infractions
-Please politely provide infractors a link to this document.
+Please politely provide infractors a link to this document.  But otherwise please stay out of arguments.
 
 ____________________________________________________________
 
