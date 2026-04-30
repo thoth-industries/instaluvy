@@ -41,6 +41,9 @@ right to share this with them, go ahead and share it.
 # infractions
 Please politely provide infractors a link to this document.  But otherwise please stay out of arguments.
 
+# locmomprotion
+Open Hearts Open Hands does great work in Lewisburg, KY and elsewhere.  Go find their fb and consider donating.
+
 ____________________________________________________________
 
 feel free to link to this document wherever, whenever.  It itself isn't a very aura-sensitive thing.
