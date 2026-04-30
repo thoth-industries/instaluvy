@@ -43,6 +43,7 @@ Please politely provide infractors a link to this document.  But otherwise pleas
 
 # locmomprotion
 Open Hearts Open Hands does great work in Lewisburg, KY and elsewhere.  Go find their fb and consider donating.
+The Internet Archive is a great place to get public domain beautiful old books in digital format.  Please consider visiting, enjoying the beauty of those books, hitting Google scholar, writing scholarly articles about them.  Or celebrating them with good art which you share with just a few people close to you.  And please consider donating to this utterly essential cause.
 
 ____________________________________________________________
 
