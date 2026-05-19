@@ -52,6 +52,8 @@ běž po svém si žít
 
 and neither will we.
 
+You weren't born to like us.  And if you have any smarts about you, things will stay that way.
+
 The "X" in Prayer Group X stands for "sous rature," in the sense of Jean-Luc Marion, specifically the "Envoi" of his work God Without Being.
 
 PRAYER GROUP X
