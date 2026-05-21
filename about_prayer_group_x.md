@@ -58,3 +58,6 @@ The "X" in Prayer Group X stands for "sous rature," in the sense of Jean-Luc Mar
 
 PRAYER GROUP X
 WE ARE DRUG DEALERS 
+
+You weren’t born to like us.
+And if you have any smarts about you, things will stay that way.
